@@ -1,5 +1,5 @@
 
-![image](https://github.com/user-attachments/assets/01f841dc-a1ba-41fc-b2f9-5165dde88195)
+![image](https://github.com/user-attachments/assets/87aa60df-76ee-49be-a7f7-b5dc7e337478)
 
 <!---
 Tsubaki-lab/Tsubaki-lab is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
